@@ -16,9 +16,6 @@ info info ^_^
 <br>
 links
 <br>
-
-
-<br>
 <br>
 <img width="110" height="65" alt="Untitled63_20260920040749" src="https://github.com/user-attachments/assets/5f8c815a-733e-464b-9ec0-4f07f1f689da" />
 <img width="110" height="65" alt="Untitled63_20260920041136" src="https://github.com/user-attachments/assets/9b9729c0-6ba3-438b-b1c2-00e1717d84e7" />
