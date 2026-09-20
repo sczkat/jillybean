@@ -22,5 +22,7 @@ links
 <img width="110" height="65" alt="Untitled63_20260920041224" src="https://github.com/user-attachments/assets/5edf3228-7ac1-4332-b38e-4b43635d2b99" />
 
 <br>
+<br>
+"When I was being mind controlled by Wesker... All I wanted was to kill you—all of you. I was conscious, but... I couldn't stop myself. It was like living in a nightmare."
 
 </div>
