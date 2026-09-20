@@ -5,6 +5,7 @@
 <img width="180" height="180" alt="image_2026-09-19_234844625" src="https://github.com/user-attachments/assets/9ca9abb5-a8d0-48e7-9e65-4cae58625bbb" />
 <img width="180" height="180" alt="image_2026-09-19_234838603" src="https://github.com/user-attachments/assets/ffffcd4d-9ba3-45b2-8ff8-57a9772ea689" />
 <img width="180" height="180" alt="image_2026-09-19_234830655" src="https://github.com/user-attachments/assets/8e4fa08e-ec84-4251-a18c-014e6e423895" />
+<img width="550" height="22" alt="tumblr_ed545ec4b9e4524629374b2b5c81441a_2a695026_500" src="https://github.com/user-attachments/assets/42c49812-d21d-41f7-9d37-597e1d098a1a" />
 
 
 </div>
