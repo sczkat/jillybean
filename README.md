@@ -9,7 +9,9 @@
 
 <br>
 <br>
-name/pronouns/age
+<img width="20" height="20" alt="tumblr_2dad4cea902b4a7bfb2ae5fb957ae17e_1974bd68_75" src="https://github.com/user-attachments/assets/540fc52e-9560-47ff-9b09-86d762fe8c55" />
+name/pronouns/age<img width="20" height="20" alt="tumblr_02a89f8f33d116682a7e0ee53e78a4b2_841a7641_75" src="https://github.com/user-attachments/assets/68accef5-4f92-4bc6-9420-c800b2652d44" />
+
 <br>
 info info ^_^
 <br>
