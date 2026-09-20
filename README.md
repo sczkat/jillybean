@@ -15,6 +15,8 @@ name/pronouns/age <img width="20" height="20" alt="tumblr_02a89f8f33d116682a7e0e
 <br>
 info info ^_^
 <br>
+<img width="20" height="20" alt="tumblr_2018c3bfa13b3751b847a4cacce37397_c703ab75_75" src="https://github.com/user-attachments/assets/64a6d704-20ad-4b4c-a74f-b6548efcce21" />
+<br>
 links
 
 <br>
