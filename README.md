@@ -17,7 +17,7 @@ links
 
 <br>
 <br>
-<img width="95" height="58" alt="Untitled63_20260920040749" src="https://github.com/user-attachments/assets/5f8c815a-733e-464b-9ec0-4f07f1f689da" />
+<img width="110" height="65" alt="Untitled63_20260920040749" src="https://github.com/user-attachments/assets/5f8c815a-733e-464b-9ec0-4f07f1f689da" />
 <br>
 
 </div>
