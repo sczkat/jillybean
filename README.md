@@ -17,7 +17,6 @@ info info ^_^
 links
 <br>
 <br>
- <img width="20" height="20" alt="tumblr_02a89f8f33d116682a7e0ee53e78a4b2_841a7641_75" src="https://github.com/user-attachments/assets/68accef5-4f92-4bc6-9420-c800b2652d44" />
 
 
 <br>
@@ -26,6 +25,9 @@ links
 <img width="110" height="65" alt="Untitled63_20260920041136" src="https://github.com/user-attachments/assets/9b9729c0-6ba3-438b-b1c2-00e1717d84e7" />
 <img width="110" height="65" alt="Untitled63_20260920041224" src="https://github.com/user-attachments/assets/5edf3228-7ac1-4332-b38e-4b43635d2b99" />
 
+<br>
+<br>
+<img width="20" height="20" alt="tumblr_02a89f8f33d116682a7e0ee53e78a4b2_841a7641_75" src="https://github.com/user-attachments/assets/68accef5-4f92-4bc6-9420-c800b2652d44" /> 
 <br>
 <br>
 
