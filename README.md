@@ -16,7 +16,6 @@ info info ^_^
 <br>
 links
 <br>
-<br>
 
 
 <br>
@@ -29,8 +28,6 @@ links
 <br>
 <img width="20" height="20" alt="tumblr_02a89f8f33d116682a7e0ee53e78a4b2_841a7641_75" src="https://github.com/user-attachments/assets/68accef5-4f92-4bc6-9420-c800b2652d44" /> 
 <br>
-<br>
-
 "𝘞𝘩𝘦𝘯 𝘐 𝘸𝘢𝘴 𝘣𝘦𝘪𝘯𝘨 𝘮𝘪𝘯𝘥 𝘤𝘰𝘯𝘵𝘳𝘰𝘭𝘭𝘦𝘥 𝘣𝘺 𝘞𝘦𝘴𝘬𝘦𝘳
 <br>
 𝘈𝘭𝘭 𝘐 𝘸𝘢𝘯𝘵𝘦𝘥 𝘸𝘢𝘴 𝘵𝘰 𝘬𝘪𝘭𝘭 𝘺𝘰𝘶 𝘢𝘭𝘭 𝘰𝘧 𝘺𝘰𝘶
