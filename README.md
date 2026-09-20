@@ -23,9 +23,10 @@ links
 
 <br>
 <br>
-"𝑾𝒉𝒆𝒏 𝑰 𝒘𝒂𝒔 𝒃𝒆𝒊𝒏𝒈 𝒎𝒊𝒏𝒅 𝒄𝒐𝒏𝒕𝒓𝒐𝒍𝒍𝒆𝒅 𝒃𝒚 𝑾𝒆𝒔𝒌𝒆𝒓 
+
+"When I was being mind controlled by Wesker...
 <br>
-𝑨𝒍𝒍 𝑰 𝒘𝒂𝒏𝒕𝒆𝒅 𝒘𝒂𝒔 𝒕𝒐 𝒌𝒊𝒍𝒍 𝒚𝒐𝒖𝒂𝒍𝒍 𝒐𝒇 𝒚𝒐𝒖 
+All I wanted was to kill you—all of you.
 <br>
-𝑰 𝒘𝒂𝒔 𝒄𝒐𝒏𝒔𝒄𝒊𝒐𝒖𝒔 𝒃𝒖𝒕 𝑰 𝒄𝒐𝒖𝒍𝒅𝒏𝒕 𝒔𝒕𝒐𝒑 𝒎𝒚𝒔𝒆𝒍𝒇 𝑰𝒕 𝒘𝒂𝒔 𝒍𝒊𝒌𝒆 𝒍𝒊𝒗𝒊𝒏𝒈 𝒊𝒏 𝒂 𝒏𝒊𝒈𝒉𝒕𝒎𝒂𝒓𝒆."
+I was conscious, but... I couldn't stop myself. It was like living in a nightmare."
 </div>
