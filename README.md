@@ -31,6 +31,6 @@ links
 𝘐 𝘸𝘢𝘴 𝘤𝘰𝘯𝘴𝘤𝘪𝘰𝘶𝘴 𝘣𝘶𝘵 𝘐 𝘤𝘰𝘶𝘭𝘥𝘯𝘵 𝘴𝘵𝘰𝘱 𝘮𝘺𝘴𝘦𝘭𝘧 𝘐𝘵 𝘸𝘢𝘴 𝘭𝘪𝘬𝘦 𝘭𝘪𝘷𝘪𝘯𝘨 𝘪𝘯 𝘢 𝘯𝘪𝘨𝘩𝘵𝘮𝘢𝘳𝘦."
 <br>
 <br>
-<img width="500" height="70" alt="IMG_8952" src="https://github.com/user-attachments/assets/32ced6c6-c525-4907-88bb-9feac805bfaa" />
+<img width="600" height="90" alt="IMG_8952" src="https://github.com/user-attachments/assets/32ced6c6-c525-4907-88bb-9feac805bfaa" />
 
 </div>
