@@ -31,6 +31,8 @@ links
 𝘐 𝘸𝘢𝘴 𝘤𝘰𝘯𝘴𝘤𝘪𝘰𝘶𝘴 𝘣𝘶𝘵 𝘐 𝘤𝘰𝘶𝘭𝘥𝘯𝘵 𝘴𝘵𝘰𝘱 𝘮𝘺𝘴𝘦𝘭𝘧 𝘐𝘵 𝘸𝘢𝘴 𝘭𝘪𝘬𝘦 𝘭𝘪𝘷𝘪𝘯𝘨 𝘪𝘯 𝘢 𝘯𝘪𝘨𝘩𝘵𝘮𝘢𝘳𝘦."
 <br>
 <br>
+<img width="550" height="22" alt="tumblr_ed545ec4b9e4524629374b2b5c81441a_2a695026_500" src="https://github.com/user-attachments/assets/42c49812-d21d-41f7-9d37-597e1d098a1a" />
+
 <img width="550" height="110" alt="IMG_8952" src="https://github.com/user-attachments/assets/32ced6c6-c525-4907-88bb-9feac805bfaa" />
 
 </div>
