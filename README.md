@@ -17,9 +17,7 @@ links
 
 <br>
 <br>
-<img width="99" height="56" alt="jill stamp" src="https://github.com/user-attachments/assets/1cfe5455-a555-4eb9-a1f4-48ff660fe6bd" />
-<img width="99" height="56" alt="wesker stamp" src="https://github.com/user-attachments/assets/b3b16d05-6283-47fc-affe-d247eed4e384" />
-<img width="99" height="56" alt="jill stamp2" src="https://github.com/user-attachments/assets/7e0637f1-a415-451c-a23e-b595d27ac1ae" />
+<img width="95" height="58" alt="Untitled63_20260920040749" src="https://github.com/user-attachments/assets/5f8c815a-733e-464b-9ec0-4f07f1f689da" />
 <br>
 
 </div>
