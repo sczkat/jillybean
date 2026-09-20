@@ -10,11 +10,11 @@
 <br>
 <br>
 <img width="20" height="20" alt="tumblr_2dad4cea902b4a7bfb2ae5fb957ae17e_1974bd68_75" src="https://github.com/user-attachments/assets/540fc52e-9560-47ff-9b09-86d762fe8c55" />
-name/pronouns/age <img width="20" height="20" alt="tumblr_2018c3bfa13b3751b847a4cacce37397_c703ab75_75" src="https://github.com/user-attachments/assets/64a6d704-20ad-4b4c-a74f-b6548efcce21" />
+⠀𓈒⠀name⠀⠀♱⠀⠀name　 𓎟𓎟 　prn　prn <img width="20" height="20" alt="tumblr_2018c3bfa13b3751b847a4cacce37397_c703ab75_75" src="https://github.com/user-attachments/assets/64a6d704-20ad-4b4c-a74f-b6548efcce21" />
 <br>
-info info ^_^
+Age､⠀text ‎ +⠀ 𓈒!
 <br>
-links
+──　　text⠀text⠀　　﹒
 <br>
 <br>
 <img width="110" height="65" alt="Untitled63_20260920040749" src="https://github.com/user-attachments/assets/5f8c815a-733e-464b-9ec0-4f07f1f689da" />
