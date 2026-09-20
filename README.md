@@ -10,7 +10,9 @@
 <br>
 <br>
 name/pronouns/age
+<br>
 info info ^_^
+<br>
 links
 
 </div>
